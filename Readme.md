@@ -1,8 +1,1 @@
-Example: 
-
-Aayush: Hi
-Hello 
-how are you 
-I am fine thank you 
-how bout you 
-im good too thanks 
+laayeko maya bhulauna garo chha thaha hola tmlai nai chahanxu ma dherai  tmlai hijo jhai voli pani tesari nai 
